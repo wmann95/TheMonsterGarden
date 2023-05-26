@@ -1,0 +1,1 @@
+Creates an explosion akin to that of a grenade.

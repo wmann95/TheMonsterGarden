@@ -1,0 +1,1 @@
+Thimbles are tools used by magicians and mages. They are bobbles that cover the tips of fingers that allow for the expulsion of mana from their bodies.

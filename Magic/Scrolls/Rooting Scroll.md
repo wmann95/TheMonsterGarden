@@ -1,0 +1,1 @@
+Originally created to reinforce bunkers with strong roots, soldiers of the [[Ram]] army found clever, and macabre, ways of using them in offense.

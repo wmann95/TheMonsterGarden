@@ -1,0 +1,1 @@
+A description of reminiscing about Simon's previous work at the time. He wanted to stop being so into the boring parts of the world like the "realism" and go more into what interests him, like the characters, the stories, and the brainstorming.

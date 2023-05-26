@@ -1,0 +1,1 @@
+Creates a line of flame akin to that of a flamethrower, hence the name.

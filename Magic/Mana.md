@@ -1,0 +1,1 @@
+Mana is a unit of measurement. 1 mana (1m) is defined to be the amount of mana that 1 liter (L) of water can hold at room temperature (70F, 20C) and sea level (1 atm) before vaporizing.

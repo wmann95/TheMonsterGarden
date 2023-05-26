@@ -1,0 +1,1 @@
+The process mages and other magic users undergo characterized by mutations and aberations to the body. Common symptoms are lengthening of limbs and gaining of extra fingers. There are other symptoms that come from specific magics.

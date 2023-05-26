@@ -1,0 +1,1 @@
+The Tar Eye is an organ that grows next to the kidneys that filters [[tar]] from the blood. A young mage have smaller tar eyes while older ones have larger tar eyes. The size of the tar eye is what determines their ability to filter tar from their bodies.
